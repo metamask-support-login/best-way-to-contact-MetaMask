@@ -1,1 +1,1 @@
-# best-way-to-contact-MetaMask
+best way to contact MetaMask
